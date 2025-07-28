@@ -58,8 +58,8 @@ Mantemos seus dados enquanto:
 ## 7. Contato
 
 Para questões sobre privacidade:
-- Email: contato@majunity.com
-- WhatsApp: +55 11 99999-9999
+- Email: majuscandeloro@outlook.com
+- WhatsApp: +55 14 99653-6032
 
 ## 8. Alterações
 
